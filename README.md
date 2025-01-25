@@ -5,7 +5,7 @@
 🚀 Passionate about AI, Machine Learning, Web development.
 
 📫 Connect with me:
-- [LinkedIn](https://linkedin.com/in/rlima99)
+- [LinkedIn](https://linkedin.com/in/rlima1799)
 - [Email](mailto:ral@icomp.ufam.edu.br)
 
 ### Stats
